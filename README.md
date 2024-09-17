@@ -1,4 +1,6 @@
-Explore some of my SEO Project that i have completed for client on upwork
+Explore  some of my SEO Project that i completed for clients on Upwork
+
+I also attched some SEO Optimised Article
 
 <img width="820" alt="Screenshot 2024-09-18 at 00 27 47" src="https://github.com/user-attachments/assets/41875965-5f67-4b11-a2fe-de19bf337e2c">
 <img width="813" alt="Screenshot 2024-09-18 at 00 27 15" src="https://github.com/user-attachments/assets/b314ba4d-77cc-4635-b635-da461f4a1bbc">
